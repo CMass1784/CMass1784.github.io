@@ -1,9 +1,9 @@
-#Senor Data Analyst
+**Senor Data Analyst**
 
-###Education
+*Education*
 
 
-Work Experience
+***Work Experience***
 -AMN Healthcare
 
 Certifications & Awards
