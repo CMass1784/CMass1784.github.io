@@ -1,12 +1,11 @@
 **Senor Data Analyst**
 
-*Education*
+***Education***
 
 
 ***Work Experience***
--AMN Healthcare
 
-(_Certifications & Awards_)
-AMN Healthcare
 
-[LinkedIn](https://www.linkedin.com/in/cheyennemassey/)
+***Certifications & Awards***
+
+#[LinkedIn](https://www.linkedin.com/in/cheyennemassey/)
