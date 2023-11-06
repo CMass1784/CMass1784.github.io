@@ -9,4 +9,4 @@
 (_Certifications & Awards_)
 AMN Healthcare
 
-[Publication](https://www.linkedin.com/in/cheyennemassey/)
+[LinkedIn](https://www.linkedin.com/in/cheyennemassey/)
