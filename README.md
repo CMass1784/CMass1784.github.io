@@ -6,5 +6,7 @@
 ***Work Experience***
 -AMN Healthcare
 
-Certifications & Awards
+(_Certifications & Awards_)
 AMN Healthcare
+
+[Publication](https://www.linkedin.com/in/cheyennemassey/)
