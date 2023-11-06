@@ -8,4 +8,4 @@
 
 ***Certifications & Awards***
 
-#[LinkedIn](https://www.linkedin.com/in/cheyennemassey/)
+[LinkedIn](https://www.linkedin.com/in/cheyennemassey/)
